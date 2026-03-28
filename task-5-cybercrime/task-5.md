@@ -1,0 +1,3 @@
+While researching cyberbullying, I was surprised to learn how common it is among students and how easily it can spread through social media. Many people participate in such behavior without realizing the serious impact it can have on someone's mental health. The anonymity of the internet makes it easier for individuals to post harmful content without facing immediate consequences.
+
+One important habit I will change is being more mindful of my online behavior. I will avoid posting or sharing anything that could hurt others and will report any bullying I come across. I will also ensure that my social media accounts are secure and private to reduce the risk of becoming a target.
